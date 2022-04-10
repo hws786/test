@@ -1,11 +1,3 @@
-[![BORA](https://miro.medium.com/fit/c/96/96/1*OaTdQvhYQPwhSwajIvfXhg.png)
-
-](https://medium.com/@BORA_Ecosystem?source=post_page-----37a63e251fac-----------------------------------)[BORA](https://medium.com/@BORA_Ecosystem?source=post_page-----37a63e251fac-----------------------------------)Follow
-
-Mar 18
-
-·8 min read
-
 OKX Deposit Event: LIVE!
 ========================
 
